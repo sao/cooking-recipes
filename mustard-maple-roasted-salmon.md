@@ -11,6 +11,11 @@
 
 **Directions**
 
-1. Preheat the oven to 400 degrees F. Line a rimmed baking sheet with aluminum foil.
-2. Mix together the mustard, 1 tablespoon of the cilantro, the mayonnaise and maple syrup in a bowl. Put the salmon fillets on the baking sheet and sprinkle with 1/4 teaspoon each salt and pepper. Spread some of the mustard mixture evenly over each fillet.
-3. Bake until just cooked through, 10 to 12 minute. Sprinkle with the remaining 1 tablespoon cilantro and serve.
+1. Preheat the oven to 400 degrees F. Line a rimmed baking sheet with aluminum
+   foil.
+2. Mix together the mustard, 1 tablespoon of the cilantro, the mayonnaise and
+   maple syrup in a bowl. Put the salmon fillets on the baking sheet and
+   sprinkle with 1/4 teaspoon each salt and pepper. Spread some of the mustard
+   mixture evenly over each fillet.
+3. Bake until just cooked through, 10 to 12 minute. Sprinkle with the remaining
+   1 tablespoon cilantro and serve.
