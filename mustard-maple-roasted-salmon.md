@@ -6,8 +6,8 @@
 * 2 tablespoons finely chopped fresh cilantro
 * 1 tablespoon light mayonnaise
 * 2 teaspoons pure maple syrup
-* Four 5-ounce skinless center-cut salmon fillets
-* Kosher salt and freshly ground black pepper
+* four 5-ounce skinless center-cut salmon fillets
+* kosher salt and freshly ground black pepper
 
 **Directions**
 
